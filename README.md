@@ -1,0 +1,1 @@
+# Declaration-of-Scientific-Stand-Tanfarid-Quantum-Thermodynamic-Universe-TQTU-
